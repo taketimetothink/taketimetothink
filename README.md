@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @taketimetothink
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning hi yo
